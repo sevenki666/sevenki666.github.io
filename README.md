@@ -1,1 +1,0 @@
-# sevenki666.github.io
